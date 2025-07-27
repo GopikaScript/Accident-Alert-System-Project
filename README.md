@@ -28,4 +28,4 @@ This project was completed as part of a collaborative effort.
 
 
 ---
-Made with ❤️ by Gopika.
+Made with ❤️ by Gopika G
